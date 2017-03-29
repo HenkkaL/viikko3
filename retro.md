@@ -1,0 +1,1 @@
+Retrospektiivitekniikoita tuntuu yhdistävän ajatus vahvasti strukturoidusta vuorovaikutustilanteesta.
